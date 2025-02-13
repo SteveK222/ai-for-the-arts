@@ -1,1 +1,1 @@
-# ai-for-the-arts
+# ai-for-the-arts Goal is too learn this shit! 
